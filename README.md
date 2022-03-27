@@ -1,5 +1,8 @@
 # Blood-Escape
+Gameplay : https://youtu.be/7ldrSycv9qo
+--------------------------------------------------------
 NamneungJaidew GromgrewSamakkee
+Member
 Passawee Wanwilai 1913210587
 Thanaboon Luekajornsak 1913230015
 Pakawat Noosaard 1913240014
